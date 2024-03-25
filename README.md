@@ -1,0 +1,1 @@
+# Yohanda-Gita-Pratiwi_2209571_Latihan-Soal-6
